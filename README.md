@@ -1,2 +1,2 @@
 # Resume
-## Last updated July 2022
+Last Updated July 2022
